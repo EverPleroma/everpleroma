@@ -7,4 +7,4 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: everpleroma01@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I love gist, movies and research
+- ⚡ Fun fact: I love gists, movies and research
