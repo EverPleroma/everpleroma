@@ -2,4 +2,4 @@
 
 Welcome to my space.
 
-I'm a UX Engineer currently learning backend.
+Please follow me on my UX Engineering journey.
